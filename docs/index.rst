@@ -10,10 +10,8 @@ How to Login ccleaner Account?
 --------------------------------------------------
 For Login Malwarebytes
 
-
-  ------------------------------------------------
-
-  Visit: https://aclogportal.com/ccleaner-login
+ ------------------------------------------------
+Visit: https://aclogportal.com/ccleaner-login
 
 
 
